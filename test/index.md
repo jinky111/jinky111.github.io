@@ -1,3 +1,3 @@
 # hello
 
-# AlCZn is Gay
+# AlC
